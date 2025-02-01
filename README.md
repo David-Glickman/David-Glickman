@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-David Glickman here; I'm currenly a data analyst/business intelligence student with TripleTen. I have professional experience in a variety of industries- most recently the entertainment industry- and I'm excited to take my naturally investigative and analytical mind and join it to some of my past experience.
+David Glickman here; I'm currenly a data analyst/business intelligence student with TripleTen. I have professional experience in a variety of industries- most recently the entertainment industry- and I'm excited to take my naturally investigative and analytical mind and join it some of the industries I know!
 
 Some fun facts about me- I enjoy meditation, yoga, surfing, music festivals. I've tried my hand at fire-spinning. I love the arts and anything that promotes creativity and flow; its the other half to my analytical side. So I've learned that its important to feed parts of myself.
 
