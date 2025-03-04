@@ -10,7 +10,9 @@ I currently have experience with sheets, excel, visualization including Tableau,
 
 
 Resume: https://docs.google.com/document/d/1FNFvpozPSPIRF9vH6XVy0nzPFUhjqP4Bg8to64XsR20/edit?usp=sharing
+
 Linkedin: https://www.linkedin.com/in/davidglickmanvb/
+
 Portfolio: https://github.com/David-Glickman?tab=projects
 
 Location: Florida, USA - potential to relocate
